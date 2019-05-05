@@ -63,9 +63,9 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### archiprêtre Vladislav Trembovelski
 ### archimandrite Antony Sergueievski
 ### diacre Seraphim Dregwald
-### Michel Mojaïski
+### Michel Mojaïsky
 ### Marie Stakhovitch
-### Irina Mojaïsky Evstathiou
+### Irina Mojaïsky Efstathiou
 ### Nathalie Sidorenko
 ### Marc Sidorenko
 ### Basile Kotschoubey
