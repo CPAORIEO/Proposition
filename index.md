@@ -58,10 +58,10 @@ Taking advantage of our independence and our autonomy, our Archdiocese can serve
 
 _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCHoVRrp6).**_
 
-### p.Wladimir Yagello
+### archiprêtre Wladimir Yagello
 ### Barbara Yagello
-### p.Vladislav Trembovelski
-### p.Antony Sergueievski
+### archiprêtre Vladislav Trembovelski
+### archimandrite Antony Sergueievski
 ### diacre Seraphim Dregwald
 ### Michel Mojaïski
 ### Marie Stakhovitch
