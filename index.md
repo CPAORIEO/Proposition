@@ -72,3 +72,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Serge Armbruster
 ### Olga Pointurier
 ### Yves Pointurier
+### Nina Volokhoff Mojaïsky
