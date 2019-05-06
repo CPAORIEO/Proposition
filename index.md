@@ -74,3 +74,6 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Yves Pointurier
 ### Nina Volokhoff Mojaïsky
 ### Isabelle Hentzien
+### hiéromoine Michel Evelson
+### Tatiana Chirinsky Abolin
+### James Chater
