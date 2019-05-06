@@ -73,3 +73,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Olga Pointurier
 ### Yves Pointurier
 ### Nina Volokhoff Mojaïsky
+### Isabelle Hentzien
