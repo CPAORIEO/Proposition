@@ -77,3 +77,10 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### hiéromoine Michel Evelson
 ### Tatiana Chirinsky Abolin
 ### James Chater
+### Catherine Makarov
+### Cécile Joris
+### Tamara Chirinsky
+### Natallia Dregwald
+### Larisa Senroka
+### Larissa Pevear
+### Alexandra Schouvaloff
