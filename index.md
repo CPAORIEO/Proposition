@@ -85,3 +85,5 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Larissa Pevear
 ### Alexandra Schouvaloff
 ### Muriel Tucker
+### Michel Sélezneff
+### Stéphane Markiewicz
