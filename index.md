@@ -88,3 +88,7 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Michel Sélezneff
 ### Stéphane Markiewicz
 ### Richard Pevear
+### Olga Pattison
+### Alexandra de Moffarts
+### Olga Lossky-Laham
+### Pierre Argouet
