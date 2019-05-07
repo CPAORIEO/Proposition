@@ -59,10 +59,12 @@ Taking advantage of our independence and our autonomy, our Archdiocese can serve
 _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCHoVRrp6).**_
 
 ### archiprêtre Wladimir Yagello
-### Barbara Yagello
 ### archiprêtre Vladislav Trembovelski
+### archiprêtre Pierre Argouet
 ### archimandrite Antony Sergueievski
 ### diacre Seraphim Dregwald
+### hiéromoine Michel Evelson
+### Barbara Yagello
 ### Michel Mojaïsky
 ### Marie Stakhovitch
 ### Irina Mojaïsky Efstathiou
@@ -74,7 +76,6 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Yves Pointurier
 ### Nina Volokhoff Mojaïsky
 ### Isabelle Hentzien
-### hiéromoine Michel Evelson
 ### Tatiana Chirinsky Abolin
 ### James Chater
 ### Catherine Makarov
@@ -91,7 +92,6 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Olga Pattison
 ### Alexandra de Moffarts
 ### Olga Lossky-Laham
-### Pierre Argouet
 ### Jean-Claude Polet
 ### Martine Jeurissen
 ### Marina de Premonville
