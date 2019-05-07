@@ -92,3 +92,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Alexandra de Moffarts
 ### Olga Lossky-Laham
 ### Pierre Argouet
+### Jean-Claude Polet
