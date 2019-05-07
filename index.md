@@ -87,3 +87,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Muriel Tucker
 ### Michel Sélezneff
 ### Stéphane Markiewicz
+### Richard Pevear
