@@ -99,3 +99,9 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Gaya Castillon Vallez
 ### Valérie Matois 
 ### Michel Feuillebois
+### Michel Sollogoub
+### Brigitte Sollogoub
+### Emilie Sollogoub
+### Ludmilla Lahame
+### Edouard Lahame
+
