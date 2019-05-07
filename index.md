@@ -93,3 +93,9 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Olga Lossky-Laham
 ### Pierre Argouet
 ### Jean-Claude Polet
+### Martine Jeurissen
+### Marina de Premonville
+### Matthieu Sollogoub
+### Gaya Castillon Vallez
+### Valérie Matois 
+### Michel Feuillebois
