@@ -123,3 +123,7 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Andreea Ranghel
 ### Anne-Marie Graffion
 ### Jean Muguet
+### Quentin Florance
+### Marie Frinking Carcassés
+### Georges Zapolsky
+
