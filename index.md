@@ -107,7 +107,7 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Daniel Lossky
 ### Olivia Aslanoff
 ### Samuel Aslanoff
-### Clément Denys
+### Denys Clément
 ### Anne Gurnade
 ### Audrey Renouard Larivière
 ### Nina Schidlovsky
