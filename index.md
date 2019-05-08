@@ -122,3 +122,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Joël Aelvoet
 ### Andreea Ranghel
 ### Anne-Marie Graffion
+### Jean Muguet
