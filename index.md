@@ -108,6 +108,16 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Olivia Aslanoff
 ### Samuel Aslanoff
 ### Clément Denys
-
-
-
+### Anne Gurnade
+### Audrey Renouard Larivière
+### Nina Schidlovsky
+### Marie Struve-Khananié
+### Lucia Beudin
+### Georges Habet
+### Francoise Bonamour du Tartre
+### Nathalie Royan
+### Marianne Juquelier
+### Alain Bouckaert
+### Henri Maurel
+### Joël Aelvoet
+### Andreea Ranghel
