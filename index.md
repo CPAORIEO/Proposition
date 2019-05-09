@@ -136,3 +136,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Pierre Duchêne
 ### Elena Pivovarov
 ### Andrey Pivovarov
+### Élie Hériard Dubreuil
