@@ -134,3 +134,5 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Nikolaï Chagoubatov
 ### Barbara Duchêne Miller
 ### Pierre Duchêne
+### Elena Pivovarov
+### Andrey Pivovarov
