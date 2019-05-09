@@ -128,4 +128,6 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Georges Zapolsky
 ### Hélène Bourlakoff
 ### Nathalie Schmemann
+### Xénia Nieroth 
+### Marina Tourtzevitch
 
