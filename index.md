@@ -61,6 +61,7 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### archiprêtre Wladimir Yagello
 ### archiprêtre Vladislav Trembovelski
 ### archiprêtre Pierre Argouet
+### archiprêtre Vitali Somov
 ### archimandrite Antony Sergueievski
 ### diacre Seraphim Dregwald
 ### hiéromoine Michel Evelson
@@ -137,3 +138,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Elena Pivovarov
 ### Andrey Pivovarov
 ### Élie Hériard Dubreuil
+### Hélène Gavelle
