@@ -144,3 +144,7 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Françoise Lhoest
 ### Hélène Knupffer
 ### Catherine Soulatzky 
+### Natalie Krougly
+### Denis Gavelle
+### Anne Miljkovic
+### Alexandre Delloue
