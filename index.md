@@ -139,4 +139,8 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Andrey Pivovarov
 ### Élie Hériard Dubreuil
 ### Hélène Gavelle
+### Nicolas Bieliavsky
+### Elisabeth Evetz
+### Françoise Lhoest
+### Hélène Knupffer
 
