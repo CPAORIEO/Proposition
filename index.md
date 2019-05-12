@@ -155,3 +155,11 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Gaël de Sauvage
 ### Marie Perzinsky
 ### Nathalie Rehbinder 
+### Dimitri Golovan
+### Alexandra Rehbinder
+### Anne von Rosenschild
+### Sonia Chatain
+### Antoine Chatain
+### Tatiana Mora Gavelle
+### Geoffroy de Moffarts d'Houchenée
+### Tatiana Volohonsky
