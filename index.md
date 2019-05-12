@@ -163,3 +163,5 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Tatiana Mora Gavelle
 ### Geoffroy de Moffarts d'Houchenée
 ### Tatiana Volohonsky
+### Lady I. Rodgers
+### Sir Piers Rodgers
