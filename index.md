@@ -168,3 +168,7 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Tamara Ivanoff
 ### Eliane Nguyen-Ruelle
 ### Seraphim Huy Nguyen
+### Marie Miljkovic
+### Philippe Noury
+### Svetlana Noury
+### Didier Veillat
