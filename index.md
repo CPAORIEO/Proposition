@@ -174,3 +174,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Didier Veillat
 ### Elim Nivière-Schouvaloff
 ### Anne Kniazeff-Dmitrenko
+### Youri Dmitrenko
