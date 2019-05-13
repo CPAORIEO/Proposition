@@ -173,3 +173,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Svetlana Noury
 ### Didier Veillat
 ### Elim Nivière-Schouvaloff
+### Anne Kniazeff-Dmitrenko
