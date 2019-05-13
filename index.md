@@ -65,6 +65,7 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### archimandrite Antony Sergueievski
 ### diacre Seraphim Dregwald
 ### hiéromoine Michel Evelson
+### mère Jeanne de la Ferriere
 ### Barbara Yagello
 ### Michel Mojaïsky
 ### Marie Stakhovitch
