@@ -176,3 +176,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Elim Nivière-Schouvaloff
 ### Anne Kniazeff-Dmitrenko
 ### Youri Dmitrenko
+### Brigitte Vilanova
