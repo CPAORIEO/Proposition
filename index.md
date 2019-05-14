@@ -62,6 +62,7 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### archiprêtre Vladislav Trembovelski
 ### archiprêtre Pierre Argouet
 ### archiprêtre Vitali Somov
+### archiprêtre Daniel Cabagnols
 ### archimandrite Antony Sergueievski
 ### diacre Seraphim Dregwald
 ### hiéromoine Michel Evelson
