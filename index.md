@@ -183,3 +183,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Anna Lagleize 
 ### Andrej Strocaŭ
 ### Madeleine Tchernetsky -Chipovalnikoff
+### Galina Chouvaloff
