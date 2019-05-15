@@ -188,3 +188,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Marie K de Kergoloët
 ### Irène Breslavtzev
 ### Grégoire Tchékan
+### Valérie Letombe
