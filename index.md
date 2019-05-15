@@ -180,3 +180,6 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Brigitte Vilanova
 ### Ghislaine Martin
 ### Johannes H. Rothenpieler
+### Anna Lagleize 
+### Andrej Strocaŭ
+### Madeleine Tchernetsky -Chipovalnikoff
