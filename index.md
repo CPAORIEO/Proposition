@@ -184,3 +184,7 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Andrej Strocaŭ
 ### Madeleine Tchernetsky -Chipovalnikoff
 ### Galina Chouvaloff
+### Claire Keruzore
+### Marie K de Kergoloët
+### Irène Breslavtzev
+### Grégoire Tchékan
