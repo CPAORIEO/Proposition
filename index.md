@@ -192,3 +192,5 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Pétré Pelin
 ### Damien Behr
 ### Françoise Michel
+### Lyn Breck
+### Stéphanie Helfelle
