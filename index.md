@@ -196,3 +196,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Stéphanie Helfelle
 ### Gleb Kochevoi 
 ### Irène Rovere-Sova
+### Alexis Jaguello
