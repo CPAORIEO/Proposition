@@ -198,3 +198,5 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Irène Rovere-Sova
 ### Alexis Jaguello
 ### Sophie Heriard Dubreuil 
+### Constantin M. Stamatopoulos
+### Jean Muguet
