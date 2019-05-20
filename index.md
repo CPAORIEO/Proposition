@@ -200,3 +200,6 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Sophie Heriard Dubreuil 
 ### Constantin M. Stamatopoulos
 ### Jean Muguet
+### Irene Bizet
+### Nadia Barets
+### Anna Podkanter
