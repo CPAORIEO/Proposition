@@ -203,3 +203,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Irene Bizet
 ### Nadia Barets
 ### Anna Podkanter
+### Maxime Saduj-Caristo
