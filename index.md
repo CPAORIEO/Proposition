@@ -204,3 +204,5 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Nadia Barets
 ### Anna Podkanter
 ### Maxime Saduj-Caristo
+### Alexandra Castillon
+### Anne Nercessian
