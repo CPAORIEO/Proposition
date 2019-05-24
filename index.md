@@ -206,3 +206,6 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Maxime Saduj-Caristo
 ### Alexandra Castillon
 ### Anne Nercessian
+### Danielle Gousseff
+### Catherine Gousseff
+### Jean Malliarakis
