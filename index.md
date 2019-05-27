@@ -209,3 +209,5 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Danielle Gousseff
 ### Catherine Gousseff
 ### Jean Malliarakis
+### Sophie Pavan
+### Philippe Capony
