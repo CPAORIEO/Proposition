@@ -211,3 +211,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Jean Malliarakis
 ### Sophie Pavan
 ### Philippe Capony
+### Elisabeth Schidlovsky
