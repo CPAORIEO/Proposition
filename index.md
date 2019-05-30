@@ -212,3 +212,10 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Sophie Pavan
 ### Philippe Capony
 ### Elisabeth Schidlovsky
+### Marina Chevtchenko
+### Pauline Chevtchenko
+### Tatiana Statzynsky
+### Yulia Dorina
+### Anastassia Lobanov
+### Alexandre Lobanov
+### Elena Nevskaia
