@@ -219,3 +219,10 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Anastassia Lobanov
 ### Alexandre Lobanov
 ### Elena Nevskaia
+### Arina Guinzbourg
+### Alexandre Guinzbourg
+### Vera Essaian
+### Barbara Essaian
+### Lisa Essaian
+### Irène Kiparissoff
+
