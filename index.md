@@ -64,6 +64,7 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### archiprêtre Vitali Somov
 ### archiprêtre Daniel Cabagnols
 ### archimandrite Antony Sergueievski
+### hypodiacre Georges Bibikoff (ancien acolyte auprès de Monseigneur Euloge)
 ### diacre Seraphim Dregwald
 ### hiéromoine Michel Evelson
 ### moniale Jeanne de la Ferriere
@@ -229,4 +230,3 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Alexandre Karpouchko 
 ### André Chestopaloff
 ### Elisabeth Bibikoff
-### Georges Bibikoff
