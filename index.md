@@ -230,3 +230,4 @@ _**To become a co-signer, please visit [this link](https://forms.gle/wStEbEetpCH
 ### Alexandre Karpouchko 
 ### André Chestopaloff
 ### Elisabeth Bibikoff
+### Chantal Cani
